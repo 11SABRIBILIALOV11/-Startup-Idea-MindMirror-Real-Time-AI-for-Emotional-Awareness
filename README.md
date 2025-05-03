@@ -1,0 +1,1 @@
+# -Startup-Idea-MindMirror-Real-Time-AI-for-Emotional-Awareness
